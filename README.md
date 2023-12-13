@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Valdean Gustavo 🤫
+## Bem-vindo(a) ao perfil do Valdean Gustavo Melo da Silva
 
  <div>
    <a href="https://github.com/Valdeangus">
